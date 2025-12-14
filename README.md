@@ -1,1 +1,1 @@
-# gallery-deta.mcyin.cc
+# gallery-deta.mcyin.com
